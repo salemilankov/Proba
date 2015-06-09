@@ -1,1 +1,0 @@
-aj sad da vidimo
